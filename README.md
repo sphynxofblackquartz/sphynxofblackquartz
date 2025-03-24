@@ -1,5 +1,6 @@
-## Hi there 👋
-
+## Hello 👋😁
+## Ask me about anything except for school and work
+## Any pronouns
 <!--
 **sphynxofblackquartz/sphynxofblackquartz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
